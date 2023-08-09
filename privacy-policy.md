@@ -1,5 +1,5 @@
 Privacy Policy
-el5hatib built the لكيميــــ(3)ـــــاء الباب الاول app as a Commercial app. This SERVICE is provided by el5hatib and is intended for use as is.
+takwim_mo3dal built the لكيميــــ(3)ـــــاء الباب الاول app as a Commercial app. This SERVICE is provided by takwim_mo3dal and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
