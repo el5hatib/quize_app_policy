@@ -1,5 +1,5 @@
 Privacy Policy
-takwim_mo3dal built the الكيمياء (3) الباب الاول app as a Commercial app. This SERVICE is provided by takwim_mo3dal and is intended for use as is.
+التقويم المعدل built the الكيمياء (3) الباب الاول app as a Commercial app. This SERVICE is provided by لتقويم المعدل and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
